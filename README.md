@@ -1,7 +1,7 @@
 # Steal-USDT-System
 盗U系统-盗U自动发卡-多签/合约方式
 
-联系客服 @TGCCTG
+联系客服 https://t.me/TGCCTG
 
 发卡盗U  TRC链授权+改权限无提示
 
